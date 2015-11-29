@@ -1,0 +1,1 @@
+Nhằm mục đích hỗ trợ và rút ngắn thời gian làm việc.
